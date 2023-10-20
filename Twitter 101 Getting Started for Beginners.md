@@ -1,5 +1,3 @@
-# Twitter 101: Getting Started for Beginners
-
 # Twitter 101: Getting started for beginners
 
 # Outline
