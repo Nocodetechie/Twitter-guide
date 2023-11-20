@@ -80,11 +80,6 @@ Aldana, A. (2023, August 12). *How to Sign Up For a New Twitter Account: Desktop
 
 - You can add images, GIFs and videos to your post(s). It's up to you.
     
-    ![WhatsApp Image 2023-10-19 at 01.22.41 (1).jpeg](Twitter%20101%20Getting%20Started%20for%20Beginners%20b7814420bac34dd7b44959ad3e5547a5/WhatsApp_Image_2023-10-19_at_01.22.41_(1).jpeg)
-    
-
-![WhatsApp Image 2023-10-19 at 01.22.40.jpeg](Twitter%20101%20Getting%20Started%20for%20Beginners%20b7814420bac34dd7b44959ad3e5547a5/WhatsApp_Image_2023-10-19_at_01.22.40.jpeg)
-
 ### **Send your first DM**
 
 - Click on the message icon on the nav bar at the bottom right corner.
